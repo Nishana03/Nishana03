@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nishana03
 - 👀 I’m interested in coding and creating projects
 - 🌱 I’m currently pursuing my career in BTECH
-- 📫 You can reach me through " nishana959@gmail.com "
+- 📫 You can reach me through " nishana9597@gmail.com "
 - 😄 She/Her
   
 
